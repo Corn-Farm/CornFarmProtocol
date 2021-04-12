@@ -1,0 +1,2 @@
+# CornFarmProtocol
+CORN is a type of cryptocurrency with restrictive clauses. It means a restrictive strategy is adopted in CORN to further the consensus of participants, for speculators are the major factor in triggering community instability amid the existing autonomous strategy execution platforms. An enhancement of its value will also be witnessed to ensure all participants a considerable profit. CORN can be used to trade HUSD and reward liquidity providers. 
